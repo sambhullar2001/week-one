@@ -31,6 +31,9 @@ in terms of the course content itself, I can see a few things that already inter
 "... is only just beginning to hint at the widespread challenges and emotional toll that targeted members of the archaeological community continue to face. It is true that structures of discrimination, intimidation, and harassment have an unconscionably long history in archaeology..." (Cook, K. (2019). EmboDIYing Disruption: Queer, Feminist and Inclusive Digital Archaeologies. _European Journal of Archaeology_, _22_(3), 398–414.)
  - as a brown (almost) woman this resonates quite heavilly with me. Because such strcutures are not only in place in archaelogy (and other field of academia for that matter), however, are in place in NEARLY EVERY institute in much of the Western world. Such structures are the foundations of modern-day nations like the USA and Canada. I believe by acknowledging them, we venture into the first step of rectifying and undoing them.
 
+**Annotations**
+As for my annotations, the content this week was engaging... albeit a bit long at times. My Hypothesis username is linked below. 
 
+https://hypothes.is/users/sambhullar2001
 
 
